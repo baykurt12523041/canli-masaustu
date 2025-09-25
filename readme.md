@@ -1,0 +1,1 @@
+1- Yazılım tamamen güvenlidir 
