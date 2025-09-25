@@ -20,6 +20,10 @@
 2- ÇOK KULLANILIRSA YAKINDA WALLPAPER PACK SUNUMLARI OLACAKTIR 
 
 
+İNDİRMEK İÇİN : <a href="https://www.kisa.link/obUts"><b>WALLPAPER ENGİNEYİ İNDİRMEK İÇİN TIKLAYINIZ</b></a>
+
+ZİP ŞİFRESİ : <a><b>XANDYX</b></a>
+
 
 
 
